@@ -1,0 +1,2 @@
+# reklamlar
+şimdi reklamlar
